@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @imekss
 - 👀 I’m interested in analytics 
-- 🌱 I’m currently learning phyton
+- 🌱 Into my way to Etherum world, web3 and more
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
